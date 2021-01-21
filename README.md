@@ -1,4 +1,4 @@
-# nayaya-ibrahim-profile
+# IBRAHIM NAYAYA BASHIR
 
 ### Hi there 👋, am [Ibrahim Bashir Nayaya](https://nayayaibrahim.dev)
 
